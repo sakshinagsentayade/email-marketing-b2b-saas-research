@@ -1,0 +1,33 @@
+# Post: The 3-Part Cold Email Structure That Gets Replies (Jun 8, 2025)
+
+**Author:** Connor Murray  
+**Date:** 2025-06-08  
+**Link:** https://podcasts.apple.com/nz/podcast/44-10-years-of-expert-cold-email-advice-in-36/id1823981278?i=1000715315544  
+**Engagement:** Podcast episode
+
+---
+
+## Full Post Text:
+
+Connor Murray says the best cold emails have 3 parts:
+1. Who you are.
+2. Why you’re reaching out.
+3. What you want.
+
+He also says to use assumptive language instead of passive language.
+
+Examples of assumptive language:- “I’m looking to set up 15 to 20 minutes next week.”- “Let me know when works best and I’ll send the invite.”- “Please give me your thoughts on this.”
+
+He recommends keeping follow-ups short and direct, usually every other day.
+
+The main idea is to write like a real person and make the next step easy.
+
+---
+## Key Takeaways:
+- Use a 3-part email structure.
+- Write in an assumptive tone.
+- Keep follow-ups short.
+- Make it easy for the prospect to respond.
+
+## How I'll use this:
+I will make cold emails shorter, clearer, and more confident so they feel natural and get more replies.
