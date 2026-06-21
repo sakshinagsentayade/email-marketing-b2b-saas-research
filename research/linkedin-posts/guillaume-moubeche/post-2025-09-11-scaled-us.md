@@ -1,4 +1,5 @@
 # Post: 3 Things That Scaled Us, 3 Things That Almost Killed Us (Sep 11, 2025)
+
 **Author:** Guillaume Moubeche  
 **Date:** 2025-09-11  
 **Link:** https://www.linkedin.com/in/guillaume-moubeche-a026541b2  
