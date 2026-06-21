@@ -13,11 +13,11 @@
 
 That’s usually a sign that the content is busy, not useful.
 
-Brendan Hufford calls the better approach Content IP: naming the specific problem your market feels but hasn’t been able to put into words yet. [web:194][web:222]
+Brendan Hufford calls the better approach Content IP: naming the specific problem your market feels but hasn’t been able to put into words yet. 
 
 Once you do that, the content gets sharper, the audience understands you faster, and your message becomes easier to remember.
 
-He also argues that you should stop chasing volume and start building around one clear problem. [web:194][web:222]
+He also argues that you should stop chasing volume and start building around one clear problem.
 
 ---
 
